@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Wrappedserpent
+- 👀 I’m interested in coding
+- 😑 I'm going to post my nonsense here
+- 😗 So enjoy!!
