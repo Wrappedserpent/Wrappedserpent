@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Wrappedserpent
 - 👀 I’m interested in coding
-- 😑 I'm going to post my nonsense here
+- 😑 I'm going to post trash here
 - 😗 So enjoy!!
